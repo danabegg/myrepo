@@ -1,5 +1,69 @@
-# myrepo
+Intergalactic Battalion
+ 
+Mission & Web-marking Plan
+•	To sell Intergalactic Battalion products via search engine marketing and social media marketing
+•	Creating a website where Intergalactic Battalion products can be purchased
 
-Second try
+Money = $1000
+-	30% Intergalactic Battalion products
+-	20% cost on keywords for search engine recall
+-	20% cost on website creation, development, design & upkeep
+-	20% cost on advertisements on social media
+-	10% cost on use of payment for Paypal…etc and Amazon
 
-I got it to work!
+Key Partners
+•	Intergalactic Battalion figurine supplier
+•	Website designer 
+•	Search Engines
+o	Key words/Search words
+•	Audience 
+o	Young/teen boys 
+o	Gamers
+•	Online Payment Companies
+o	Paypal 
+Venmo
+•	Amazon
+
+Key Activities
+•	Online marketplace: Advertising the toys
+o	Social Media (Facebook/Twitter/Instagram)
+o	Via search engine keywords
+•	Selling Intergalactic Battalion figurines and toys via website 
+o	Photos/Prices
+
+Value Propositions
+•	Quality
+•	Fun 
+•	Reasonable pricing
+•	Accessible
+•	Attention-grabbing
+
+Customer Relationships 
+•	Easy access for all – searchable through the web
+•	Tailored to our audience via Facebook advertising
+•	Shopping cart for website
+•	If product available through Amazon > via account login 
+
+Customer Segments
+•	Persona Examples
+o	10 year old teen wants to purchase Intergalactic Battalion figurines searches online through google  Keywords direct to website pullup
+o	25 year old male scrolling through Facebook finds an advertisement for an exclusively featured gadget from his favorite gaming role play of Intergalactic Battalion 
+
+Cost Structure
+•	Creation and design of Intergalactic Battalion website 
+•	Marketing costs
+•	Maintenance and updating of the website for new toys, discounts, purchases…etc
+•	Creation of keywords into search bar via search engines  Mostly google
+•	Advertisement costs from ads on Facebook, Twitter and Instagram
+
+Revenue Streams
+•	Built for profit
+•	Advertisements via social media
+
+Channels
+•	Social media
+•	Popularity
+•	Search terms: Intergalactic Battalion, figurines, toys
+
+
+
